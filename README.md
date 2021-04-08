@@ -2,4 +2,4 @@
 - 👀 I’m interested in Creating Web Apps That can Blow your Mind!
 - 🌱 I’m currently learning Vue.Js and Nuxt.Js
 - 💞️ I’m looking to collaborate on Projects That can help Humanity
-- 📫 How to reach me? --> Hit me up Muniss138@gmail.com or +998972998730
+- 📫 How to reach me? --> Hit me up Muniss138@gmail.com / +998972998730 / @SinuMi on Telegram
